@@ -1,4 +1,4 @@
-# Surjeet Kumar Arya, Computaional and Molecular Biologist
+# Surjeet Kumar Arya [Computaional and Molecular Biologist]
 
 ## Techniques Known/Skills
 
